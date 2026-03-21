@@ -19,7 +19,7 @@ Profissional com mais de 10 anos de experiência anterior em marcenaria, com atu
 
 ## 🌐 Acesse meu currículo online
 
-🔗 Em breve disponível via Vercel
+🔗 https://lnkd.in/exSPkHdu
 
 ---
 
